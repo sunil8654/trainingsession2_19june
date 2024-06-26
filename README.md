@@ -1,4 +1,5 @@
-
-![Screenshot 2024-06-26 011038](https://github.com/sunil8654/trainingsession2_25june_task/assets/158507694/bbfc5b90-c8f0-4d27-80fb-4ba7801bde01)
-![Screenshot 2024-06-26 011116](https://github.com/sunil8654/trainingsession2_25june_task/assets/158507694/f4a5c092-12f1-4429-9f78-23746b500a7f)
-![Screenshot 2024-06-26 011127](https://github.com/sunil8654/trainingsession2_25june_task/assets/158507694/fb50262f-5d7a-40ea-9165-a858548ea756)
+![Screenshot 2024-06-27 001514](https://github.com/sunil8654/trainingsession2_19june/assets/158507694/4c895f07-33cc-4905-8fd7-ac329bdaa63a)
+![Screenshot 2024-06-27 001642](https://github.com/sunil8654/trainingsession2_19june/assets/158507694/38281772-e159-4b2f-ac0d-d68f0bfd7010)
+![Screenshot 2024-06-27 001706](https://github.com/sunil8654/trainingsession2_19june/assets/158507694/6007a743-5a4c-4e3a-bd3c-ec43b8e05696)
+![Screenshot 2024-06-27 001729](https://github.com/sunil8654/trainingsession2_19june/assets/158507694/1bc3ab02-edac-4264-94ec-a2fccec63467)
+![Screenshot 2024-06-27 001456](https://github.com/sunil8654/trainingsession2_19june/assets/158507694/d6d2d549-b6d2-4d8d-8683-1c1402235651)
